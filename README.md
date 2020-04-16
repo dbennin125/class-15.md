@@ -1,1 +1,3 @@
 # class-15.md
+
+My take away from the article that is that sometimes the ego gets in the way of the greater good. You don't always need to be the brightest person on the project, you need to be humble and allow others to shine. Sometimes, it isn't always about the data, sometimes it's about the person, or self behind the work. Things aren't always measured strictly by formulas. You have to follow your instincts too. I am not too familar with the term psychological safety but we did practice it in the work place. I feel it's vaild to have your voice heard and ideas expressed. It's important to have that open discussion with everyone so it's group effort not just someone bullying their way. All and all, I enjoyed the article and there were good take aways. 
